@@ -1,21 +1,21 @@
 🔥Премиальная коллекция 3D-композиций и визуальных сцен в фирменном стиле Helena Studio
 Premium Collection of 3D Compositions and Visual Scenes in the Signature Helena Studio Style
-🇷🇺 Описание
+
 Премиальная коллекция 3D-композиций и визуальных сцен в фирменном стиле Helena Studio.
 Подходит для сайтов, презентаций, AI-концепций, лендингов, рекламных материалов, digital-дизайна и коммерческого использования.
 
-🇬🇧 Description 
+
 A premium collection of 3D compositions and visual scenes in the signature Helena Studio style.
 Perfect for websites, presentations, AI concepts, landing pages, advertising materials, digital design, and commercial use.
 Серия 1 — Ancient Marble Classicism
 
 Series 1 — Ancient Marble Classicism 
 
-🇷🇺 Описание 
+
 Премиальная коллекция античных архитектурных сцен: мраморные колоннады, арки, мягкие ткани, утренний золотой свет и музейная атмосфера. Чистые линии, благородные материалы и ощущение пространственного величия.
 Подходит для презентаций, брендинга, editorial-проектов, luxury-дизайна и коммерческого использования.
 
-🇬🇧 Description 
+ 
 A premium collection of ancient architectural scenes: marble colonnades, arches, soft drapery, morning golden light, and a refined museum atmosphere. Clean lines, noble materials, and a sense of spatial grandeur.
 Perfect for presentations, branding, editorial projects, luxury design, and commercial use.
 
